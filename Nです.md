@@ -1,0 +1,1 @@
+です add to noun to make a predicate. Indicates judgement or assertion, politeness, inflects when sent is negative or in past

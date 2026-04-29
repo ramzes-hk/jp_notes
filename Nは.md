@@ -1,0 +1,1 @@
+added after a topic of the sentence (read as わ)

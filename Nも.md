@@ -1,0 +1,1 @@
+added instead of [[Nは]] when the statement about the topis is the same as the prev topic
